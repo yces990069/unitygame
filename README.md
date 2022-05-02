@@ -8,3 +8,4 @@
 所有的遊戲物件專案黨由於檔案大小問題我放在雲端硬碟上,以下為連結
 # 遊玩影片
 遊戲遊玩的影片我方在雲端硬碟上,以下為連結
+https://drive.google.com/drive/folders/15f4ilVnuY1hhoWbjATl5p53qX8KyBENs?usp=sharing
